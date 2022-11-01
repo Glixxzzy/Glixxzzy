@@ -1,2 +1,0 @@
-https://readme-typing-svg.demolab.com?font=Comic+Sans+Ms&size=25&duration=1000&pause=500&color=2150F7&width=435&lines=sadsaddddddddddddddddddddddddddddddddddddaaaaaaaaaaaasassssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss.;Lol+Jude+LOL!.;I+like+playing+blooket" alt="Typing SVG"/></a></p>
-
