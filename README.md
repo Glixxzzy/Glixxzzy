@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+am+not+the+real+glixxzzy;I+like+playing+blooket;My+favorite+gamemode+is+Fishing+Frenzy)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+am+not+the+real+glixxzzy;I+like+playing+blooket;Fishing+Frenzy+is+my;Favorite;My+favorite+song+is;Golden+Light+by+Madden)](https://git.io/typing-svg)
